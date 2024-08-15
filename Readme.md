@@ -1,1 +1,1 @@
-# HonkaiImapact3SummerBet2022
+# HonkaiImapact3SummerBet2024
